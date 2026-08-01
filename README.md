@@ -7,7 +7,7 @@
 
 im also like anime with gore.
 
-bye-
+ok bye-
 
 
 egg.
