@@ -5,8 +5,6 @@
 
 *but am a dumb fck*
 
-(me:) i have drip bruv:
+im like anime with gore.
 
-<img width="600" height="250" alt="drop" src="https://github.com/user-attachments/assets/389048ef-7713-439b-8113-483e55cb5fdc" />
-
-*im kidin*
+im playing with a lot of gooner game like: ZZZ, hi3 
