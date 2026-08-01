@@ -1,13 +1,5 @@
 # hi
-im xycert.
+### am xycert, a 14year old men.
 
-you know that i know.
-
-i know you know who know me.
-
-im trying out everysingle bulshi what i found.
-im learning languges like: C, C#, C++ 
-but am bad as fck
-
-see my WRK(Windows Research Kernel) tutorial:
-https://github.com/xycertbsi/wrk12
+(me:) i have drip bruv:
+<img width="523" height="371" alt="drop" src="https://github.com/user-attachments/assets/389048ef-7713-439b-8113-483e55cb5fdc" />
