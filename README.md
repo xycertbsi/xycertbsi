@@ -8,8 +8,3 @@
 im also like anime with gore.
 
 ok bye-
-
-
-my egg(s) pet.
-
-<img width="700" height="200" alt="egg" src="https://github.com/user-attachments/assets/8d794162-cd92-4578-9497-f0dc727fd36c" />
